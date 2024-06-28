@@ -1,1 +1,0 @@
-# 1-trabalho-do-2-tri
